@@ -1,0 +1,2 @@
+# DMpsikoloji
+KlinikpsikologDeryaMuglu
